@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+## 大家好，我是小满1221，看到我的小伙伴们好！！
+
+![:xiaoman1221](https://count.getloli.com/get/@:xiaoman1221)
+
 <!--
 **xiaoman1221/xiaoman1221** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
